@@ -1,4 +1,4 @@
-# My name is Gustavo 👌
+# Gustavo
 
 **`IT Enthusiast`**
 
